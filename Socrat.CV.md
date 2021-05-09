@@ -1,5 +1,5 @@
 #Socrat Alnajjad
-![](C:\Users\Socrat\Desktop\my_photo.jpg)
+![](https://github.com/socrat89/socrat.CV2/blob/main/my_photo.jpg)
 
 **“ Manager ”**
 
