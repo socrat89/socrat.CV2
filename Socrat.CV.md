@@ -1,5 +1,5 @@
 #Socrat Alnajjad
-
+![](C:\Users\Socrat\Desktop\my_photo.jpg)
 
 **“ Manager ”**
 
